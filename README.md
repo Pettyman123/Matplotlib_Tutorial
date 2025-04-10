@@ -7,3 +7,4 @@ i think im dead inside hehehe
 dead inside
 dead
 dead 
+better now
